@@ -2,6 +2,7 @@
 
 # Click Here👉 [Play Chill Guy Clicker](https://shorturl.at/ZCBw6)
 
+# Play The Game Online at [Y9FreeGames.com](https://www.y9freegames.com/)
 
 If you’re searching for a simple yet engaging game to unwind, look no further than **Chill Guy Clicker**! This soothing clicker game invites players into a world of calm entertainment where clicking is your key to success. Earn money, unlock rewards, and discover the charm of the Chill Guy collection as you progress through various levels and stages.  
 
